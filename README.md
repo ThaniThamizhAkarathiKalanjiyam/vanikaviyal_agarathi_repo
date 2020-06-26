@@ -47,7 +47,7 @@
 
 ====
 
-Thanks to Wikipedia to make it possible and thanks to Themozhi who gave this links to produce the New dict.
+Thanks to Wikipedia to make it possible https://ta.wikisource.org/s/1w52  and thanks to Themozhi who gave this links to produce the New dict.
 
 ===
 
